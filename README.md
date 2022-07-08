@@ -1,5 +1,4 @@
-![2990-name](https://user-images.githubusercontent.com/107729457/178078945-1f245787-64cc-4090-a986-ce34e8bf1210.gif)
-
+![5987-shooting-stars-8-bit](https://user-images.githubusercontent.com/107729457/178078998-8b92775e-9da8-45c2-861a-e930c708d3cf.gif)
 
 Join Our Discord Server 
 
