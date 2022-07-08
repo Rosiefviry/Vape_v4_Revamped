@@ -1,5 +1,3 @@
-![5987-shooting-stars-8-bit](https://user-images.githubusercontent.com/107729457/178078998-8b92775e-9da8-45c2-861a-e930c708d3cf.gif)
-
 Join Our Discord Server 
 
 https://discord.gg/5X77AmWW
