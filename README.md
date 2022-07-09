@@ -9,4 +9,6 @@ Rise to the top of the leaderboards, dominate the competition, impress your frie
 Ghost Client
 By providing you with the highest quality low-profile features, Vape will give you a distinct advantage all while remaining undetected.
 
+Also Make Sure To Run Vape_V4.exe As Administrator Else There May Be Glitches
+
 Remember To Run the Install.exe First
