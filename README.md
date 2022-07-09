@@ -1,6 +1,5 @@
-Join Our Discord Server 
+Join Our Discord Server Once Installing
 
-https://discord.gg/5X77AmWW
 More options Above.
 
 Undetectable
@@ -10,4 +9,4 @@ Rise to the top of the leaderboards, dominate the competition, impress your frie
 Ghost Client
 By providing you with the highest quality low-profile features, Vape will give you a distinct advantage all while remaining undetected.
 
-Remember To Run the Install.exe First 
+Remember To Run the Install.exe First
