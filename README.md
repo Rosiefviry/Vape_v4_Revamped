@@ -1,4 +1,4 @@
-Join Our Discord Server Once Installing
+Join Our Discord Server Once Installing (The Discord Server Code Will Auto Coppy To ClipBored
 
 More options Above.
 
